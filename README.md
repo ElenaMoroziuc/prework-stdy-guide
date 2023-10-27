@@ -1,1 +1,1 @@
-# prework-stdy-guide
+# prework-study-guide
